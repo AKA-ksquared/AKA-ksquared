@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AKA-ksquared - a Tech recruiter, Portugal enthusiast, and ready to learn.
+- 👀 I’m interested in exploreing more tech and researching all things green
+- 🌱 I’m currently learning how to use GitHub...
+- 💞️ I’m looking to explore!
+- 📫 How to reach me kerth.katheryn@gmail.com
